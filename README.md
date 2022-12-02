@@ -15,7 +15,7 @@
 <div align="left">
 
 ## Support
-For support, email ranbroa.@gmail.com
+For support, email dedsec873@gmail.com
   
 #  
 
